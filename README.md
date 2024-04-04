@@ -1,6 +1,8 @@
 # Bandwagonhost 搬瓦工官网
 
-官网最新地址：[Bandwagonhost 搬瓦工官网](https://bandwagonhost.com/aff.php?aff=74518)
+官网最新地址：
+
+[Bandwagonhost 搬瓦工官网](https://bandwagonhost.com/aff.php?aff=74518)
 
 [国内访问备用地址1](https://bwh88.net/aff.php?aff=74518)
 
